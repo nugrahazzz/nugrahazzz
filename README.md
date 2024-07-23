@@ -1,4 +1,4 @@
-## Hi, I'm [Agung Nugraha!](https://www.linkedin.com/in/nugrahaz/) <img src="https://github.com/TheDudeThatCode/TheDudeThatCode/blob/master/Assets/Hi.gif" width="29px"> (Third Account)
+## Hi, I'm [Agung Nugraha!](https://www.linkedin.com/in/nugrahaz/) (Third Account)
 
  
 <a href="https://www.linkedin.com/in/nugrahaz/">
